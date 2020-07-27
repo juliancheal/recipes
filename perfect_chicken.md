@@ -40,7 +40,7 @@ Cut a couple of `carrots` and `onions` in to quarters then place them onto the c
 
 Gently place your prepared `chicken` on top of the trivet of `vegetables`. If the `chicken` is unstable rearrange the `vegetables`.
 
-Place your `chicken` into the oven ideally on a middle shelf. Turning down the oven to `200℃`. Now relax and have a glass of `wine.``
+Place your `chicken` into the oven ideally on a middle shelf. Turning down the oven to `200℃`. Now relax and have a glass of `wine.`
 
 Baste your `chicken` halfway through cooking with the juices that are happily sitting at the bottom of the oven tray. If the `vegetables` look dry, add a splash of `water` (`wine`?) to stop them from burning.
 
